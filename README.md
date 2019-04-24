@@ -1,0 +1,2 @@
+# uselessshitomg.github.io
+diplom
